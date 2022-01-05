@@ -1,1 +1,0 @@
-# ashura2022.github.io
